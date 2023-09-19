@@ -1,5 +1,5 @@
 - I'm Jimbles 👋
-- You can find me on Discord: @.Jimbles.
+- You can find me on Discord @ .Jimbles.
   
 
 <!---
