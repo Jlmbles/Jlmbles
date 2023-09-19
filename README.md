@@ -1,5 +1,4 @@
-- Yo, I'm Jimbles 👋
-- Let's make shit...
+- I'm Jimbles 👋
 - You can find me on Discord: @.Jimbles.
   
 
