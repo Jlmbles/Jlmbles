@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jimbles. 
-- 📫 Contact me via Discord: .Jimbles.
+- 📫 Discord: .Jimbles.
 - 😄 Pronouns: he/him
 
 <!---
